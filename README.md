@@ -2,7 +2,7 @@
 
 ![gmtk2025gif](https://github.com/user-attachments/assets/b709917f-0b98-4e84-9700-f9f5e84dbe52)
 
-### <a href="https://youtu.be/WryjsEWYHrM?si=vwlmoboNtSayUTaa">▶️ Play Video</a>
+### <a href="https://youtu.be/WryjsEWYHrM?si=vwlmoboNtSayUTaa">▶️ Play Video</a> <a href="https://margotlinne.itch.io/the-loop-i-made">🎮Play Here</a>
 
 ## About
 
